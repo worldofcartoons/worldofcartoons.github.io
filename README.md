@@ -1,2 +1,2 @@
 # worldofcartoons.github.io
-Privaty Policy
+Privacy Policy
